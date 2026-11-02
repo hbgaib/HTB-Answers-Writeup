@@ -1,0 +1,3 @@
+This is intended as my personal answers and writeups archive. Currently im trying to document as much as i could, but man, life got busy sometimes. If you find it helpful, then yeah good for you. Though be wary, knowing the answers wont make you a certified cybersecurity expert, practice will. 
+Anywayy since im not tryin to get sued or anything, so
+cHJhYm93b3RlZGR5a29rb3BiYXNhaGNpdW1hbjY0amFtbm9uc3RvcAo=
